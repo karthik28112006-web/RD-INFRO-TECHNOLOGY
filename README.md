@@ -3,7 +3,7 @@
 
 ## Intern Details
 
-**Name:** Karthik Reddy
+**Name:** Kake Karthikeya Reddy
 
 **Company:** RD INFRO TECHNOLOGY
 
